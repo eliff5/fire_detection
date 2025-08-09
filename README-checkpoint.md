@@ -1,0 +1,2 @@
+# yang-n_tespiti
+ 
